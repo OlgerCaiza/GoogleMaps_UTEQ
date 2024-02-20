@@ -1,8 +1,6 @@
-![WhatsApp Image 2024-02-07 at 16 33 48 (1)](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/8a5a980d-cde8-4c51-81ee-924d68d9e699)
+![WhatsApp Image 2024-02-20 at 15 59 26 (1)](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/7df15d2e-58da-44e6-8efb-7e6bc6ac0144)
+![WhatsApp Image 2024-02-20 at 15 59 26](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/03b5ad77-2ea4-429e-9724-305fdd97040d)
+![WhatsApp Image 2024-02-20 at 15 59 25](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/d1243919-122d-4de3-8af2-2916fb6b4927)
 
-![WhatsApp Image 2024-02-07 at 16 33 48](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/8d82854e-ae48-4689-9b9c-1a1c7ab18fb8)
-
-
-
-
-![WhatsApp Image 2024-02-07 at 16 33 47 (1)](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/053d1fe5-bb9a-47c3-a679-7d2cc6273bb9)
+![WhatsApp Image 2024-02-20 at 15 59 25 (2)](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/b9cd7d72-488f-4088-a053-e846995f77a9)
+![WhatsApp Image 2024-02-20 at 15 59 25 (1)](https://github.com/OlgerCaiza/GoogleMaps_UTEQ/assets/151785332/afdf014d-bd0c-4b50-84ec-f966f1ea94a5)
